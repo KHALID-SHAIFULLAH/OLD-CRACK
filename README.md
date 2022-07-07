@@ -1,3 +1,7 @@
+<img src="https://c.top4top.io/p_2379bo9hu0.jpg" width="120" height="120" align="left">
+<center>
+
+
    ##  MY SOCIAL MEDIA : <br>
 
 <a href="https://Instagram.com/khalid_vau_2009/" target="_blank"><img src="https://github.com/Azim-vau/Azim-vau/blob/main/IMAGE/instagram.png" alt="alt text" width="25" height="25"></a> 
